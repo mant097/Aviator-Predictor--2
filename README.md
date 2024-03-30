@@ -1,4 +1,4 @@
-# Aviator-Predictor--2
+# Aviator-Predictor--2 v2
 
 ![1](https://github.com/Zzero-simo/Aviator-Predictor--2/blob/main/302161437-a2368ccb-e998-486f-83d5-ac579e49397c%20(2).png)
 
